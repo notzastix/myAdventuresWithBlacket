@@ -3,7 +3,7 @@
 - The community is very toxic and betastar just isnt fun anymore, neither is blooket
 - Xotic also charged 100$ to my paypal without permisson
 
-# "Why was Y banned from the discord?"
+# "Why was I banned from the discord?"
 - Me and acai tryed to "nuke" the server, didnt ban many people but it made a small dent
 
 # What about the multitool?
