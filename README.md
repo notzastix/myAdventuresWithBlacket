@@ -14,3 +14,5 @@
 
 # Q/A
 - If you have any questions open a issue, and ill answer
+
+For a more in-depth explantion look [here](https://github.com/l2vy7/leaving-betastar)
